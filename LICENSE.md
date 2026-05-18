@@ -1,4 +1,4 @@
-# 
+# exclusive Affinity Photo para PC executor é o melhor Affinity Photo para PC executor com pincéis personalizados e iluminação. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
